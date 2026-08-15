@@ -1,1 +1,1 @@
-# tb.github.io
+google.com, pub-9061514976372234, DIRECT, f08c47fec0942fa0
